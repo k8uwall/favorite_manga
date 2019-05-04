@@ -99,6 +99,17 @@ https://twitter.com/kishi_yyy/status/1105761367846346753
 https://twitter.com/kishi_yyy/status/1112661239652466688
 https://twitter.com/kishi_yyy/status/1123926992032870400
 
+不器用な先輩
+https://twitter.com/m0721804/status/1101805810252886016
+https://twitter.com/m0721804/status/1104335240271605760
+https://twitter.com/m0721804/status/1106863134076096512
+https://twitter.com/m0721804/status/1109418078993969153
+https://twitter.com/m0721804/status/1111936683363033088
+https://twitter.com/m0721804/status/1114482802546757637
+https://twitter.com/m0721804/status/1117019694274236416
+https://twitter.com/m0721804/status/1119552072087556096
+https://twitter.com/m0721804/status/1122100157011517440
+
 
 未分類
 ======
