@@ -99,6 +99,10 @@ https://twitter.com/kishi_yyy/status/1105761367846346753
 https://twitter.com/kishi_yyy/status/1112661239652466688
 https://twitter.com/kishi_yyy/status/1123926992032870400
 
+
+木曜日は君と泣きたい。 - GANMA!(ガンマ) 
+http://ganma.jp/kiminaki
+
 不器用な先輩
 https://twitter.com/m0721804/status/1101805810252886016
 https://twitter.com/m0721804/status/1104335240271605760
