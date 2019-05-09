@@ -114,6 +114,8 @@ https://twitter.com/m0721804/status/1117019694274236416
 https://twitter.com/m0721804/status/1119552072087556096
 https://twitter.com/m0721804/status/1122100157011517440
 
+大学ではじめて恋人ができた人の話 / ひみつ
+http://seiga.nicovideo.jp/comic/35696
 
 未分類
 ======
