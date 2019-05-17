@@ -120,6 +120,9 @@ http://seiga.nicovideo.jp/comic/35696
 【創作漫画】雨の日に変わる関係
 https://twitter.com/PKyuriri/status/1128984582693371904
 
+チャラ男と占い師
+https://twitter.com/PKyuriri/status/1111589167962587136
+
 未分類
 ======
 
