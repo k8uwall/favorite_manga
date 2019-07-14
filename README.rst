@@ -92,6 +92,7 @@
 
 予知能力まんが・九能ちよ、その22
 https://twitter.com/shiqui7/status/1129582358212927489
+予知能力まんが・九能ちよ / しきせいいち - ニコニコ静画 (マンガ) http://seiga.nicovideo.jp/comic/37083?track=list
 
 仕事仲間が隣人まんが
 https://twitter.com/suzuyuki_cookie/status/1114099995433562113
