@@ -139,6 +139,8 @@ https://twitter.com/akihigh001/status/1133324211945033730
 【創作漫画】氷属性男子とクールな同僚女子 17
 https://twitter.com/tonomyu/status/1112310836842762240
 
+さとうユーキ＠5/11単行本＠夏４日目南フ06bさんのツイート: "友人に恋愛相談した結果（初恋今恋ラブレター７）… " https://twitter.com/yuukikagou/status/1150737056831721472
+
 未分類
 ======
 
