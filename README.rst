@@ -145,6 +145,8 @@ https://twitter.com/tonomyu/status/1112310836842762240
 可愛そうにね、元気くん
 
 
+与田基俟さんはTwitterを使っています: 「だいたい30才差恋愛 12 https://t.co/we9qUH8STY」 / Twitter https://twitter.com/kishi_yyy/status/1154702661742022657
+
 さとうユーキ＠5/11単行本＠夏４日目南フ06bさんのツイート: "うっかり結婚の約束をしてしまってた幼馴染みＪＫが純粋すぎてつらい漫画… " https://twitter.com/yuukikagou/status/1131901076431486977
 さとうユーキ＠5/11単行本＠夏４日目南フ06bさんのツイート: "幼馴染ＪＫと結婚するかもしれない話を彼女に話した結果（幼馴染ＪＫ求婚漫画２）… " https://twitter.com/yuukikagou/status/1149649796845596678
 さとうユーキ＠5/11単行本＠夏４日目南フ06bさんのツイート: "幼馴染ＪＫを振るために休日呼び出した結果（幼馴染ＪＫ求婚漫画３）… " https://twitter.com/yuukikagou/status/1152178717327626240
