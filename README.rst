@@ -169,6 +169,15 @@ https://twitter.com/tonomyu/status/1112310836842762240
 八木戸マトさんはTwitterを使っています: 「負けヒロインが勝とうと頑張る話3 https://t.co/TChg2eGcTl」 / Twitter https://twitter.com/yakitomahawk/status/1165434211592896512
 
 
+
+八木戸マトさんはTwitterを使っています: 「ギャップ萌えとクール系女子の話 https://t.co/zGOZ9g7r0y」 / Twitter https://twitter.com/yakitomahawk/status/1140181365842857990
+八木戸マトさんはTwitterを使っています: 「泣き虫とクール系女子の話 https://t.co/4yjO4rY8AJ」 / Twitter https://twitter.com/yakitomahawk/status/1141959344050753536
+八木戸マトさんはTwitterを使っています: 「お姉ちゃん呼びとクール系女子の話 https://t.co/4Z7FWtPjs6」 / Twitter https://twitter.com/yakitomahawk/status/1143688843389878272
+八木戸マトさんはTwitterを使っています: 「言葉より先に体が動いてしまうタイプ（一見クールだけど普通可愛い篠田さん４） https://t.co/J1VP007fUf」 / Twitter https://twitter.com/yakitomahawk/status/1158901225959514112
+八木戸マトさんはTwitterを使っています: 「思ってた反応と違った（一見クールだけど普通可愛い篠田さん５） https://t.co/8vTw36kGvx」 / Twitter https://twitter.com/yakitomahawk/status/1167560452022267906
+
+
+
 未分類
 ======
 
