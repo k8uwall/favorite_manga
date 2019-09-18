@@ -187,6 +187,8 @@ https://twitter.com/tonomyu/status/1112310836842762240
 
 斎創＠さいそう。＊22日はウィクロス学園祭サイン会!!さんはTwitterを使っています: 「うちの会社の小さい先輩の話 https://t.co/g736idQ2Fu」 / Twitter https://twitter.com/saiso_/status/1174303552983879680
 
+斎創＠さいそう。＊22日はウィクロス学園祭サイン会!!さんはTwitterを使っています: 「うちの会社の小さい先輩の話。 https://t.co/ppSqZyhkAM」 / Twitter https://twitter.com/saiso_/status/1173081205870219266
+
 未分類
 ======
 
