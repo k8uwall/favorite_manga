@@ -228,6 +228,8 @@ https://twitter.com/i/moments/1174317625347674112
 さとうユーキ＠秋例あ25ab/紅楼夢と01ab＠月アクで連載中さんはTwitterを使っています: 「彼女がつらそうなことにようやく気付いた結果（うっかり幼馴染と結婚の約束をしてしまってた結果10） https://t.co/3yIADCWe06」 / Twitter https://twitter.com/yuukikagou/status/1180090477003055104
 さとうユーキ＠秋例あ25ab/紅楼夢と01ab＠月アクで連載中さんはTwitterを使っています: 「同人誌版「うっかり幼馴染と結婚の約束をしてしまってた結果」が現在書店委託されています とら→https://t.co/tZyob8gDQf メロン→https://t.co/eP7srunkVZ BOOTH（DL）版→https://t.co/OpdGONXNTx Kindle版→10月中旬以降予定」 / Twitter https://twitter.com/yuukikagou/status/1180090489816530944
 
+さとうユーキ＠秋例あ25ab/紅楼夢と01ab＠月アクで連載中さんはTwitterを使っています: 「29歳女子が婚活のために漫画家アシスタントになった話　1/5 https://t.co/KEqd3mjJmo」 / Twitter https://twitter.com/yuukikagou/status/1121992465454514176
+
 ======
 
 パラレルパラダイス
