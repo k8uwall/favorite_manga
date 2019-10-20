@@ -236,8 +236,9 @@ https://twitter.com/minimaru/status/1177118112543436800
 https://twitter.com/minimaru/status/1180003610156879872
 https://twitter.com/minimaru/status/1184358058123616257
 
-あららぎ菜名🌸🍶/漫画家さんはTwitterを使っています: 「「先輩とふたり飲み 2」 #創作漫画 #オリジナル #恋愛漫画
-https://t.co/1e8xaq33QH」 / Twitter https://twitter.com/Araragi_Nana_23/status/1185761818402119680
+「先輩とふたり飲み 2」 #創作漫画 #オリジナル #恋愛漫画
+https://twitter.com/Araragi_Nana_23/status/1180801969247510530
+https://twitter.com/Araragi_Nana_23/status/1185761818402119680
 
 ======
 
