@@ -255,6 +255,10 @@ https://twicomi.com/author/wakegi9315/page/3
 
 マジで付き合う15分前シリーズ / Twitter https://twitter.com/i/moments/1177964855124320258
 
+や　さ　し　い　せ　か　い / Twitter https://twitter.com/i/moments/1176690291249573888
+
+
+
 ======
 
 パラレルパラダイス
