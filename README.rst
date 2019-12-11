@@ -259,6 +259,9 @@ https://twicomi.com/author/wakegi9315/page/3
 
 
 (1) 玲。さんはTwitterを使っています: 「妹の友達が何考えてるのかわからない１４　(1/2) #妹の友達が何考えてるのかわからない https://t.co/MATGrrBXxu」 / Twitter https://twitter.com/rayrei1414/status/1198197995277144065
+
+Perico@C97 3日目B33bさんはTwitterを使っています: 「【創作漫画】部長と女子マネが映画に行く話 https://t.co/Nqw18FyWcl」 / Twitter https://twitter.com/perico_op/status/1189121586697162754
+Perico@C97 3日目B33bさんはTwitterを使っています: 「【創作漫画】（おまけ）部長と女子マネが映画に行く話 https://t.co/7kWyMm6wBZ」 / Twitter https://twitter.com/perico_op/status/1189888751255732225
 ======
 
 パラレルパラダイス
