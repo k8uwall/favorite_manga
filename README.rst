@@ -265,6 +265,11 @@ Perico@C97 3日目B33bさんはTwitterを使っています: 「【創作漫画�
 
 隈浪さえ@ママつら（1）12/21発売さんはTwitterを使っています: 「【創作漫画】殺し屋だって見守りたい㉙ https://t.co/fjvjQc42g9」 / Twitter https://twitter.com/KMNM_S/status/1206137822324776960
 
+
+#オリジナル 殺し屋だって見守りたい⑪ - 隈浪さえのマンガ - pixiv https://www.pixiv.net/artworks/77432563
+
+
+
 ======
 
 パラレルパラダイス
