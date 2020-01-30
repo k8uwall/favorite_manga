@@ -270,6 +270,8 @@ Perico@C97 3日目B33bさんはTwitterを使っています: 「【創作漫画�
 
 津留崎優🍳さんはTwitterを使っています: 「高低差40ｃｍ（1/3） https://t.co/f57rZECwZi」 / Twitter https://twitter.com/hatori_niwatori/status/1126475920376602624?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1126475920376602624&ref_url=http%3A%2F%2F2chcopipe.com%2Farchives%2F52114183.html
 
+
+その淑女は偶像となる - 松本陽介 | 少年ジャンプ＋ https://shonenjumpplus.com/episode/10834108156749809355
 ======
 
 パラレルパラダイス
