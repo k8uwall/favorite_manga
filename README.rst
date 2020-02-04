@@ -272,6 +272,9 @@ Perico@C97 3日目B33bさんはTwitterを使っています: 「【創作漫画�
 
 
 その淑女は偶像となる - 松本陽介 | 少年ジャンプ＋ https://shonenjumpplus.com/episode/10834108156749809355
+
+
+[鳥原習@ティアす02bさんはTwitterを使っています: 「空気が「読める」新入社員と不愛想な先輩の話8・前編 \#空気が読める新入社員と不愛想な先輩の話 https://t\.co/zZCAja5oDy」 / Twitter](https://twitter.com/t_rsa/status/1224618687056896000)
 ======
 
 パラレルパラダイス
