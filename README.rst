@@ -279,6 +279,11 @@ Perico@C97 3日目B33bさんはTwitterを使っています: 「【創作漫画�
 
 鉄一さんはTwitterを使っています 「双子たちの諸事情【2】 https://t.co/oC9bwvBfG6」 / Twitter https://twitter.com/mada_tetsukazu/status/1225983047805239298
 
+
+ポロロッカ＠メテオで読切＆色々準備中さんはTwitterを使っています 「黒ギャルがバレンタインに弄ってくる #バレンタインデー https://t.co/InzFwXUSwr」 / Twitter https://twitter.com/po_ro_ro_ka/status/1228327909921718272
+ポロロッカ＠メテオで読切＆色々準備中さんはTwitterを使っています 「黒ギャルが幼馴染を弄ってくる https://t.co/avyina618f」 / Twitter https://twitter.com/po_ro_ro_ka/status/1197427669949767680
+
+
 ======
 
 パラレルパラダイス
